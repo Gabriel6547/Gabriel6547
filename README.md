@@ -3,3 +3,4 @@ go to https://docs.google.com/presentation/d/1TESVYcge6Oy-9Be9vYQ-OkVmZb_iz-1MQa
 go to https://www.duolingo.com/classroom/gqbxzh
 go to https://99math.com/login
 go to https://www.getepic.com/sign-in/educator
+download Minecraft Education Edition were clicked
